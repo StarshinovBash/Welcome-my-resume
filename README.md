@@ -1,0 +1,6 @@
+# Welcome-my-resume
+👋 Hi, I’m @StarshinovBash
+👀 I’m interested in 🎮 WΞB3 GAMING 🎮 
+🌱 I’m currently learning ...
+💞️ I’m looking to collaborate on web3 game project...
+📫 How to reach me starshinovivanufa@gmail.com
